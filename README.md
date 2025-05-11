@@ -1,8 +1,10 @@
-Site: [https://thienphucgib.github.io](https://thienphucgib.github.io/)
+Site: [thienphucgib.github.io](https://thienphucgib.github.io/)
 
-Tiktok: [https://tiktok.com/19th10.9](https://tiktok.com/19th10.9)
+Tiktok: [tiktok.com/19th10.9](https://tiktok.com/19th10.9)
 
-Youtube: [https://youtube.com/Thienphuc8783](youtube.com/Thienphuc8783)
+Youtube: [youtube.com/Thienphuc8783](https://youtube.com/Thienphuc8783)
+
+Github: [github.com/Thienphucgib](https://github.com/Thienphucgib)
 
 ĐI QUA NHỚ CHO 1 Followers Và subcribe Nhé!!
 
